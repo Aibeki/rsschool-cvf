@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Aibeki.github.io/rsschool-cv/cv
